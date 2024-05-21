@@ -1,6 +1,6 @@
 # Welcome to Peak Synergy AI, LLC
 
-![Peak Synergy AI Logo](peak_synergy_ai.png)
+![Peak Synergy AI Logo](peak_synergy_ai_logo.png)
 
 ## About Us
 

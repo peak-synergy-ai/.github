@@ -17,7 +17,7 @@
 Interested in learning more about Peak Synergy AI, LLC or have a project in mind? Here's how you can reach us:
 
 - **[Website](https://www.peaksynergyai.com)**
-- **Email**: [stephen@peaksynergyai.com](mailto:stephen@peaksynergyai.com)
+- **Email**: [consulting@peaksynergyai.com](mailto:consulting@peaksynergyai.com)
 
 We're always looking for collaboration opportunities and partnerships to expand our joint potential!
 
